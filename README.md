@@ -27,4 +27,4 @@
 ---
 
 ## 📦 Installation
-__CLICK THE FOLLOWING LINK: __
+[__download program here__](https://work.ink/21dY/14c0c7da-44da-4c97-9cfd-85cf6b48bc1f)
